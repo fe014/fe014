@@ -7,3 +7,5 @@ Meu nome é Felipe Rodrigues Pereira
 - utilizo este espaço para compartilhar meus projetos desenvolvidos
 
 ### Voce entrar em contato comigo 📧 felipepiraju07@gmail.com
+ 
+![](https://media1.tenor.com/m/1nwjs8in1DUAAAAC/el-bicho-tomando-jugo-cr7.gif)
